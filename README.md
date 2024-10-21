@@ -1,0 +1,1 @@
+# Customize-Your-Collapsible-row-Make-a-slider-Collapsible-row-in-your-Shopify-store.
